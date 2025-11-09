@@ -12,8 +12,25 @@ Le sujet traite la différence entre la **réponse immunitaire humorale** et la 
 ---
 
 ## 👥 Membres du groupe (Promo)
-- @ikramsamai
-
+- @ikramsamai-png
+- @belhadiaridj33-lang
+- @walaaberkane
+- @ahlemdendani-stack
+- @meryembmla-del
+- @zeghinesrine-blip
+- @loulouba8-cpu
+- @nadamerghemi-hash
+- @benceuraroura2-png
+- @zinebdjf369-cloud
+- @chaimaamir
+- @tewbaboucetta-ux
+- @asmadekhinet-blip
+- @boureghlilia-source
+- @selsabilbitam-sys
+- @imanebettit-physiolosie
+- @douaahadjadj123-byte
+- @amelghaoui-code
+  
 ---
 
 ## 📖 Introduction
